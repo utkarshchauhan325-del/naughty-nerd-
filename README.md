@@ -1,2 +1,3 @@
-# Maa-Chudao
-sabki maa ki chut
+# code x 
+naughty nerds
+
